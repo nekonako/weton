@@ -4,7 +4,7 @@ bro emang kalau tau umurku berapa langsung jadi kaya raya ?
 kepo banget sih
 
 cukur kok berasa interview.
-untung nggak tanya 5 tahun kedepan mau jadi apa.
+untung nggak pertanyaan gambarkan diri anda dalam 5 tahun ke depa.
 coba kalo tanya, mungkin aku udah nggak lolos terus disuruh pindah ke tempat cukur lain.
 padahal rambut baru dipotong separuh
 
